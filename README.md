@@ -230,3 +230,39 @@ Detail Overview Of UPSC!
 ## Law Commission Reports / Report Institution
 ***
 - These things are very useful in GS2 and GS3 when you need statistics and figures
+
+
+## Government Committees
+***
+- Recent Committees
+
+
+
+
+## Facts & Stats
+***
+- Indian Ocean as Zone of Peace
+- Cairo Conference of NAM(1964)
+- Lusaka Declaration (1970)'
+
+- WHO reports on Tabacco
+- Consumption in India
+- GATS(Global Tabcco Anti Survey) down from 20% to 11%
+- But smokekess tabacco accpunts 85% of consumption
+
+- For Facts & stats uses different colors for increase recalling power
+
+- You can't solve a problem in 200 words You have to very objective about it.
+
+- For example question on Energy
+  - 20% Renewable
+  - 5% solar
+  - 1.5% small hydro
+  - 2.5% Biomass
+  - 10% wind
+  
+
+## Rights of vulnerable section, Human Rights Women Rights
+***
+- 
+
