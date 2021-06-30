@@ -117,5 +117,5 @@ Detail Overview Of UPSC!
 - Single page
 - Keywords
 - ![](yt.png)
-- [](https://www.youtube.com/results?search_query=school+of+life)
+- [School of Life](https://www.youtube.com/results?search_query=school+of+life)
 
