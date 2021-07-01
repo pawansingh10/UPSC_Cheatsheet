@@ -264,5 +264,13 @@ Detail Overview Of UPSC!
 
 ## Rights of vulnerable section, Human Rights Women Rights
 ***
+
+- Ethics in governance
+- Public Order
+- Financial Management
+- State & District Management
+- e-Governance
+- Local Governance
 - 
+
 
