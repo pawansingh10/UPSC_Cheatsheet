@@ -110,6 +110,8 @@ Detail Overview Of UPSC!
 - Mains
   - Examiner will check your copy
   - Keywords
+  - Every 50 marks attend in 35 minute
+  - 50x5=250 Marks 35x5 = 175 minutes + 5 minutes for Marking & Attendance sheet
 
 - Explain the Examiner by Example
   - Like Integrity:- definition and Example- Like During the Chauri Chora Movement gandhi ji was take back the movement because he was believed in Non voilence and Shows the integrity in his leadership that he called off the movement.
@@ -273,4 +275,299 @@ Detail Overview Of UPSC!
 - Local Governance
 - 
 
+
+## Economic Survey
+***
+- Highlights of 1st Chapter
+- Only keywords have been underline
+- Like:
+- Chapter:1 Investment and Saving
+- Then points
+
+- Data is also quoted
+
+### India's Ranking in Global Index
+
+
+### Figures-Economics
+***
+- Agro
+- MSME's Contribution
+
+
+### Vocabulary (Exam-vocabulary)
+***
+- When you have nothing then use vocabulary
+-
+- Which is reduldant till exam preparartion time which is embeded in every answers
+
+- must inbibe the priciples
+- Leverage technology to enhance efficiency
+- participation of state & non-state actors
+- International standards % best practices
+- independent & leadership of women
+- develop network of stakeholders
+- Build on local capacity & initiative
+- digital India
+- R & D
+- Social Media
+- greater cohension in international response
+
+
+### Mnemonics or Acronyms
+***
+
+- **Af  Ri Ca Co Ca Cola**
+ - Afforestation
+ - RiverRejuvenabation      CLIMATE
+ - Carbon Offsetting       CHANGE
+ - Coal Reduction           Initiatives
+ - Car-Electric Vehicle
+ - Consumption Regulation
+ - Land reactamation
+
+- Youth or Child Related Problem
+ - ** i - S H E E P **
+ - Identification
+ - Skill develop
+ - Heakth
+ - Education
+ - Enterprize/Empowerment
+ - Poverty
+
+
+### Strategies Of Governance
+***
+- Data Collection
+- More Autonomy To ..... the resonsible (ULB) Urban Local Body / Munaspility etc
+- Partner With ....... some organization like NGOs, MSMEs, Selp Help group
+- Change in Attitude
+- Focus from OUTPUT To Overcome
+
+
+### Way to Solve Problems
+***
+-> Digital Tools and Tech
+-> Alternaye methods
+-> PPP
+-> NGOs
+-> Increase Spending
+
+
+
+### Foreign Affairs
+***
+* **Political**
+- Geopolitical
+- Strategic
+- Security
+- Water/Resource Sharing
+
+* **Economic**
+- Economic Integration
+- Energy Security
+- Trade &Investments
+- Defence Partnership
+
+* **Cultural**
+- Connectivity & Transport
+- Cultural Ties
+- Expatriate Community
+- p-2-p exchanges Public Private Partnership
+
+
+
+### Hindi Vocabs
+***
+- Democracy - Prjatantra, LokTantra, Jantantra
+- Republic - Gantantra
+- Administrative - Prashasnik
+- Perspective - dristikon
+- Secular - Dhramnirpeksh
+- Commissioner - Aayukt
+- Research & Develoment - Anushandhan aur Vikas
+
+
+
+
+### CASES 
+***
+> Here in these cases constitutional crisis is there
+
+- Fundamental Rights Vs DPSPs Conflicts
+- Shankari Prasad Case
+- Golaknath Case
+- Keshavanad Bharti Case
+- Minarwa case
+- Menka Gandhi case
+
+- Article 21 is everywhere
+
+
+
+
+
+
+
+
+### LAWS
+***
+
+- Political
+  - Right to Information Act, 2003
+  - Official Secrets Act 1923
+  - Unlawful Activities Case 1967
+  - Prevention Of Corruption Act, 1988
+
+- Consumer Protection Act 1986
+
+
+- Economic
+  - Income Tax Act, 1961
+  - Competion Act, 2002
+  - Cigerrette & Other Tabacco Production Act, 2008
+  - Drugs & Causmetic Act, 1980
+
+
+- Social
+  - Protection of Human Rights Act, 1993
+  - Child Marriage Prohibition Act, 2006
+  - Domestic Voilence Act, 2005
+  - Mental HealthCare Act, 2017
+  - Rights of Person with Disability Act, 2016
+
+
+  - Enviromental Protection Act, 1996
+  - Forest Rights Act, 2006
+
+  - Forest Conservation Act, 1980
+  - Air Act, 1981
+  - Water Act, 1974
+
+
+### Objectives
+***
+- P A R T S
+ - Professionalism
+ - Accountability
+ - Regulation
+ - Transparency
+ - Symmetry
+
+
+### 5 keys to a Project
+***
+
+- Conception Mechanism
+- Initiation Mechanism
+- Enforcement Mechanism
+- Redressal Mechanism
+
+
+### Panchayati Raj & Rular Development
+***
+- C U P
+  - Corruption
+  - Unemployment
+  - Poverty
+  
+- T E A
+  - Transparency
+  - Entrepreneurship
+  - Affluence
+
+- ***Cancer***
+- R I S C
+  - Radiation
+  - Impuraotheorapy
+  - Surgery
+  - Chameotherapy
+  
+- Human Development Approach
+- C W I B
+  - Capabilities
+  - Welfare
+  - Income
+  - Basic Needs
+
+- Bilateral Ties
+- S T I C
+  - Security & Counter-Terroism
+  - Trade & Transport
+  - infrastructure & Energy
+  - Cultural
+
+- Industry
+- M E T I I S
+  - Manufacturing & MSME
+  - Environment
+  - Trade, Fiscal, Foreign Policies
+  - Infrastructure
+  - Investments
+  - Skills & Technology
+
+- Challenges To Manufacturing
+- M U R R S
+  - Money
+  - Unions
+  - Robots
+  - Research
+  - Skill
+
+
+
+- Labour
+- W I S H
+  - Wages
+  - Industrial Relations
+  - Safety & Social Security
+  - Health & Working Conditions
+  - 
+
+- Urban Poverty Abbreviation
+- F E C H S E T
+  - Food
+  - Education
+  - Clothing
+  - Housing
+  - Sanitiajetion
+  - Electricity
+  - Transport
+
+
+### Flow Charts
+***
+
+- 4 E's (Need : Youth Development Indes)
+  - Education
+  - Employment
+  - Empowerment
+  - Enterprenuership
+
+- INCLUSIVE GROWTH
+  - Employment
+  - Environment
+  - Empowerment
+  - Equitable Distribution
+  - Social Development
+  - Industrial Development
+  - Agricultural Development
+  - Poverty Reduction
+
+
+- WTO
+  - Free Trade
+  - Fair Competition
+  - Non-Discrimination
+  - Economic Reforms
+  - Predictatbility
+
+
+- Insolvency & Bankcrupicy Code
+- V I R A L
+  - Validation  of Case
+  - Identification
+  - Resolution
+  - Asset
+  - Liquidation
 
