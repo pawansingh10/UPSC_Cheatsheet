@@ -571,3 +571,63 @@ Detail Overview Of UPSC!
   - Asset
   - Liquidation
 
+
+
+
+## Office Of Governer
+***
+- Follows 1 page 1 Issues policy
+- Little bit from Laxmikant & some from newspaper
+- Positives & Criticism
+
+- Constitutional head of state
+- Agent of the centre-maintains chain of command between Centre & States
+- Executive Rules - Observing govt, formation reporting constitutional break down etc
+- Legislative
+- 
+
+
+### Gambling in Sports
+***
+- Law Commission Recommendation
+
+
+
+
+
+### India & Its Neighbour
+***
+- Nepal
+  - 1. China Factor
+  - 2. Railway Line Project
+  - 3. Integrated Check Posts(ICP)
+  - 3. Nepali Recruitment in Gurkha Regiment
+  - 4. Drugs Crime surrounding
+  - 5,
+
+
+- China
+  - Dalai Lama & Tibbet
+  - Rivers Dispute
+  - Trade
+  - Border Dispute
+  - CPEC
+
+
+- Pak
+  - Terriosm
+
+- Bhutan
+
+
+- Bagladesh
+
+- Srilanka
+
+- Afganistan
+
+
+
+
+- From Vision Compilation
+
