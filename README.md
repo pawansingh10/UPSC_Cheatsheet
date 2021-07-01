@@ -615,12 +615,15 @@ Detail Overview Of UPSC!
 
 
 - Pak
-  - Terriosm
+  - Terrorism
 
 - Bhutan
 
 
 - Bagladesh
+
+
+
 
 - Srilanka
 
@@ -631,3 +634,6 @@ Detail Overview Of UPSC!
 
 - From Vision Compilation
 
+
+- A Concise History Of Europe by David S. Mason
+  - [World History](https://archive.org/details/concisehistoryof0000maso)
