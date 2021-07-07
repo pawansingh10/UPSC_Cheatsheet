@@ -12,3 +12,19 @@
 - Make Essay on 20 points, Elaborate those 20 points in 10/11 pages.
 - Choose one by objective not by heart, After choosing don't think about another topic
 -->
+
+- There are 2 ways of Essay Writting
+  1. 🔴**Chronology**
+    - Start from a point of time
+    - Ancient
+    - Modival
+    - Modern
+    - Obama
+    - A person fail, got the courage, dedicated to improve then Succeed
+    
+  2. 🔴**Fact Base Story**
+    - Education
+    - Women
+    - Society
+    
+ 
