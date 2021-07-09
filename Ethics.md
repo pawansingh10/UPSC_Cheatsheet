@@ -1,6 +1,7 @@
 
 ## Ethics from Insights - 70 Days 
-
+***
+- [70/70 Days](https://www.insightsonindia.com/70-days-ethics-plan/)
 
 
 
